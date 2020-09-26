@@ -1,2 +1,2 @@
-# Cyrex
-Cyrex Coin
+New Crypto Coin -Cyrex coin
+Coming soon...
